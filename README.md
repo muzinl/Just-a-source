@@ -1,1 +1,1 @@
--- Just Chilling on this code
+https://discord.gg/4wEF4NmS
